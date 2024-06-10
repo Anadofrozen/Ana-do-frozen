@@ -10,9 +10,9 @@ utilizo esse espaço para minha organização e compartilhamento de projetos des
 
 ### você entrar em contato comigo 😜
 
-00001113243958sp
+00001113243958sp.com
 
 @anadofrozen
 
 
-https://tenor.com/pt-BR/view/hunter-the-owl-house-hooray-gif-25968638
+![](https://media1.tenor.com/m/_XN9C5DO4UEAAAAC/hunter-the.gif)
