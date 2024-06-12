@@ -10,7 +10,7 @@ utilizo esse espaço para minha organização e compartilhamento de projetos des
 
 ### você entrar em contato comigo 😜
 
-00001113243958sp.com
+anadofrozen@gmail.com
 
 @anadofrozen
 
